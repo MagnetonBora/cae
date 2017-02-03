@@ -31,6 +31,12 @@ Vocabulary:
 
 **Seize** = Воспользоваться
 
+**Presumably** = предположительно
+
+**Frankly** = откровенно
+
+**Doubtlessly** = несомненно
+
 Phrasal nouns:
 ---
 
@@ -65,3 +71,9 @@ Should use more often:
 **Amuse**
 
 **Part and parcel**
+
+**Presumably**
+
+**Frankly**
+
+**Doubtlessly**
