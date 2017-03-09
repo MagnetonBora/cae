@@ -47,6 +47,8 @@ Vocabulary:
 
 *water supplies* = источники воды
 
+*virtually* = практически (virtually/almost all those arrested were accused)
+
 
 Some less format or neutral expressions:
 ---
@@ -154,3 +156,8 @@ Should use more often:
 
 *Jump on the bandwagon*
 
+*Bitterly*
+
+*Incredibly*
+
+*Virtually*
