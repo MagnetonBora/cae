@@ -161,3 +161,79 @@ Should use more often:
 *Incredibly*
 
 *Virtually*
+
+*begged* = умолять
+
+*Seething*
+
+*couldn't care less*
+
+*wind up*
+
+*to be well up* = come up (as of feelings and thoughts, or other ephemeral things); "Strong emotions welled up"
+
+*to be on edge* = nervous
+
+*snap at* = to speak sharply or angrily to someone
+
+*couldn't care less* = indifferent
+
+*to be sick and tired*
+
+*scared stiff about* = напуганный чем-то
+
+*livid* = очень сердитый
+
+*terrified* = испуганный
+
+*agitated* = взволнованный
+
+*to be on cloud nine*
+
+*to be in two minds*
+
+*to be in gigh spirits*
+
+*to be out of sort*
+
+*to be in rage*
+
+*go off the deep end*
+
+*to be down in the dumps*
+
+*to be over the moon*
+
+*keep temper*
+
+*pull together and stay calm*
+
+*to make a scene*
+
+*My patience is wearing thin*
+
+*to be beside yourself*
+
+*thrilled*
+
+*scraps with something*
+
+*fly into a rage*
+
+*to get on somebody's nerves*
+
+*needles to say*
+
+*to have a clue* = to have no knowledge about something, or to be unable to remember something
+
+*to be on talking terms*
+
+*to ge head or tail of something*
+
+*to get worng end of the steak*
+
+*to have a go at someone*
+
+*get a word in edgeways* = to not be able to say anything because someone else is talking all the time
+
+*means to an end* = something that you do because it will help you to achieve something else trying out
