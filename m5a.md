@@ -164,7 +164,13 @@ Should use more often:
 
 *begged* = умолять
 
-*Seething*
+*Seething* = кипящий
+
+*Indignation* = негодование
+
+*Enraged* = разъяренный
+
+*Infuriated* = взбещенный
 
 *couldn't care less*
 
