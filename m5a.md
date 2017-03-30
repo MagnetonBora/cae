@@ -174,7 +174,7 @@ Should use more often:
 
 *couldn't care less*
 
-*wind up*
+*wind up* = tease or irritate someone
 
 *to be well up* = come up (as of feelings and thoughts, or other ephemeral things); "Strong emotions welled up"
 
